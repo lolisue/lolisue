@@ -5,6 +5,6 @@ Here you'll find various things I do on GitHub that is used totally in its inten
 - 🔭 Notes/ideas/journaling
 - 🌱 Japanese mastery
 - 💬 Immersion roadmap
-- 📫 How to reach me: lolisue (Discord)
+- 📫 How to reach me: you don't
 - 😄 Pronouns: He/him
-- ⚡ Fun fact: I speak Mandarin Chinese, and I love the Japan culture
+- ⚡ Fun fact: I speak Mandarin Chinese
